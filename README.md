@@ -1,1 +1,1 @@
-# singbox.github.io
+# mnzn.github.io
